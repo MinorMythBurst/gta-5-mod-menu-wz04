@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://MinorMythBurst.github.io/gta-5-mod-menu-wz04/ ) |
  |---------------------|----------------------:|
 
 
